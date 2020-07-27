@@ -5,3 +5,5 @@
 ![](0xb81D3cB2708530ea990a287142b82D058725C092.png)
 
 ![](metamask.png)
+
+![](decentralization.yfii.finance.png)
